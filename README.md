@@ -1,1 +1,1 @@
-# logos
+# Nanowear Logos & Branding Assets
